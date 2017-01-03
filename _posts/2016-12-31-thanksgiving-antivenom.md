@@ -73,7 +73,7 @@ Claire thinks the US was founded as a religious country, and we should not tramp
 
 #### Tax Reform
 
-Theo wants the tax code Dramatically simplifies; remove carried interest deduction, mortgage deduction, etc.  Would keep the charitable deduction.
+Theo wants the tax code dramatically simplified; remove carried interest deduction, mortgage deduction, etc.  Would keep the charitable deduction.
 
 #### Education Reform
 
