@@ -109,7 +109,7 @@ Has very strong feelings about employers getting to deduct health insurance expe
 
 #### Supreme Court
 
-Henry thinks Far and away most important.  Delaying confirmation in "the last year" of a "lame duck presidency" is fine.  Senate's role is to consent and advise, and they can choose not to.  Garland believed to be too liberal.  Hillary's appointments would have changed the court for too long a time.
+Henry thinks the court is far and away most important.  Delaying confirmation in "the last year" of a "lame duck presidency" is fine.  Senate's role is to consent and advise, and they can choose not to.  Garland was to be too liberal.  Hillary's appointments would have changed the court for too long a time.
 
 #### Debt + Deficit
 
